@@ -6,4 +6,4 @@
     05111940000145 - Ikhlasul Amal Rivel
     05111940000155 - Achmad Fadillah
   
-<p>Link Penjelasan : sedang diupload</p>
+<p>Link Penjelasan : https://youtu.be/uS4CbGfvk-M</p>
